@@ -9,4 +9,4 @@
   
 📫 Contacto:
 - Email: perezhernandezjazziel183@gmial.com
-- LinkedIn: linkedin.com/in/jazziel-perez-hernandez-3b183a182
+- LinkedIn: https://linkedin.com/in/jazziel-perez-hernandez-3b183a182
